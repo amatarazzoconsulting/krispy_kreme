@@ -1,3 +1,6 @@
+## Krispy Kreme New Era
+### By Anthony Matarazzo (c) 2026
+
 ### Executive Overview: The Next Era of Krispy Kreme Automation, Personalization, and Retail Experience
 
 * **History and Heritage: From Winston-Salem to Global Theater**
